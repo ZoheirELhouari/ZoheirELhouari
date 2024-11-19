@@ -6,4 +6,3 @@
 
 - I’m looking to collaborate on ... Projects in machine learning with well structured objectives that are looking to enhance the field or industry that they will operate within.
 
-- How to reach me ... elhouarizoheir@gmail.com
